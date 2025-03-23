@@ -1,1 +1,1 @@
-# -eid-slider-
+Eid Special Offer
